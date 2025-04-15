@@ -1,1 +1,0 @@
-# Adept-Authorized-Buffalo-HTML
